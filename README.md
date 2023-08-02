@@ -1,0 +1,4 @@
+- epa, deu o grau aqui no meu perfil maluco. <ou não né> https://github.com/Rogerioblindins
+- aqui eu vou fazer minhas coisas loucas vei, só coisa maluca vai sair daqui.
+- se quiser ver mais sobre mim, olha minhas outras redes doido.
+- youtube - https://www.youtube.com/@MaratPiratych  
